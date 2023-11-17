@@ -1,1 +1,0 @@
-# mieayamreceh.github.io
